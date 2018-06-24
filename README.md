@@ -15,7 +15,7 @@ Line Square: https://line.me/ti/g2/3JOJA5WCQyfmjNmDy8TVpUsAo43Zo_GPzrMR7D8DbmL3Q
 
 ![myimage-alt-tag](https://cdn.discordapp.com/attachments/454573042459475968/454646935035576330/jadwal_event.jpg)
 <hr>
-<h1> Saphitera Main Team </h1>
+<h1> Lair's Main Team </h1>
 
 1. ⁴⁷ᴿCaraval/⁷ᴿTank•Top
 2. ⁴⁷ᴿIllyazviel
