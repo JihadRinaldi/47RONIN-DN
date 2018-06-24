@@ -17,7 +17,7 @@ Line Square: https://line.me/ti/g2/3JOJA5WCQyfmjNmDy8TVpUsAo43Zo_GPzrMR7D8DbmL3Q
 <hr>
 <h1> Lair's Main Team </h1>
 
-1. ⁴⁷ᴿCaraval /⁴⁷ᴿTank•Top
+1. ⁴⁷ᴿCaraval / ⁴⁷ᴿTank•Top
 2. ⁴⁷ᴿIllyazviel
 3. ⁴⁷ᴿMooncaZ
 4. ⁴⁷ᴿReot
